@@ -1,5 +1,6 @@
 # Bossa Nova and the “Elevator Music” Label
 How did bossa nova become associated with elevator music?
+
 [View or download the poster (PDF)](Bossa_Nova_and_the_“Elevator_Music”_Label.pdf)
 
 # Sources cited
