@@ -1,3 +1,7 @@
+# Bossa Nova and the “Elevator Music” Label
+How did bossa nova become associated with elevator music?
+[View or download the poster (PDF)](Bossa_Nova_and_the_“Elevator_Music”_Label.pdf)
+
 # Sources cited
 
 1. McCann, Bryan. *João Gilberto and Stan Getz’s Getz/Gilberto*. Bloomsbury Academic, 2019. **Locators:** pp. 8–16, for origins; pp. 42–47 and 72 for U.S. circulation; p. 73 for the elevator sequence in *The Blues Brothers*.
